@@ -13,12 +13,14 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 he hapee
 >w<
   _____
- (88w88)
-^( | | )^
+ (88w88)  _`_
+^( | | )^[___]/
 ^(_|_|_)^
 :)
 
 spider dance best undertale song
+I think u forgot Dummy!
+But Spider Dance is good
 
 
 I have a cat
