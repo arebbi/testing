@@ -23,3 +23,6 @@ I don't have a cat
 Do I have a cat?
 no one knows. 
 uwu
+
+what if we're all just living in a simulation
+and cats are controlling it?
